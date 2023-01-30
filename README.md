@@ -1,2 +1,3 @@
 # hello-world.
 Just play nothing serious ...
+Just a normal 9ja Boy growing, making mistakes and learing
